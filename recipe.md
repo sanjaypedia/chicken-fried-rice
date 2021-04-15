@@ -1,0 +1,3 @@
+In a medium skillet over medium heat, heat olive oil. Season chicken with salt and pepper on both sides, then add to skillet, and cook until golden and no longer pink, 8 minutes per side. Remove from skillet and let rest 5 minutes, then cut into bite-sized pieces.
+To the same skillet, heat 1 tablespoon sesame oil. Add onion and carrots and cook until soft, 5 minutes, Add garlic and ginger and cook until fragrant, 1 minute more. Stir in rice and peas and co zazszsxdcfdcvjk until warmed through, 2 minutes.h
+Push rice to one side of skillet and add remaining tablespoon sesame oil to other side. Add egg and stir until almost fully cooked, then fold eggs into rice. Add chicken back to skillet with soy sauce and green onions and stir to combine.
